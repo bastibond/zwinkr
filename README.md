@@ -1,4 +1,4 @@
-# zwinkr99
+# zwinkr
 GitHub Pages
 zwinkr
 GitHub Pages https://github.com/bastibond/zwinkr-nur-Frauen
